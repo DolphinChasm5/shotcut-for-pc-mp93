@@ -1,4 +1,4 @@
-# 
+# elite Shotcut for PC | Shotcut for Windows Addon | motion-tracking + color-grading offers the most advanced Shotcut for PC | Shotcut for Windows addon, with motion-tracking and
 
 
 
